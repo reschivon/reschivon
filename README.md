@@ -1,1 +1,1 @@
-## Hello! My profile has moved to [github.com/xclucas](github.com/xclucas)
+## Hello! My profile has moved to [github.com/xclucas](https://github.com/xclucas)
